@@ -1,5 +1,7 @@
-Author: Gia-Fu Feng  
+Translator: Gia-Fu Feng  
 Year: 1972  
+Source: [terebess.hu](https://terebess.hu/english/tao/gia.html)  
+Code: gff  
 
 ## 1
 

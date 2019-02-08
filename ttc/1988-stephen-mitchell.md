@@ -1,5 +1,7 @@
-Author: Stephen Mitchell  
+Translator: Stephen Mitchell  
 Year: 1988  
+Source: [terebess.hu](https://terebess.hu/english/tao/mitchell.html)  
+Code: sm  
 
 ## 1
 

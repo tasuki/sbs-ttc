@@ -1,5 +1,7 @@
-Author: Ron Hogan  
+Translator: Ron Hogan  
 Year: 2004  
+Source: [beatrice.com](http://www.beatrice.com/TAO.txt)  
+Code: rh  
 
 ## 1
 

@@ -1,5 +1,7 @@
-Author: J.H. McDonald  
+Translator: J.H. McDonald  
 Year: 1996  
+Source: [terebess.hu](https://terebess.hu/english/tao/mcdonald.html)  
+Code: jhmd  
 
 ## 1
 

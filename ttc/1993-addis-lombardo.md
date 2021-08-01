@@ -48,7 +48,7 @@ Longwinded speech is exhausting. Better to stay centered.
 ## 6
 
 The Valley Spirit never dies. It is called the Mysterious Female.  
-The entrance top the Mysterious Female Is called the root of Heaven and Earth.  
+The entrance to the Mysterious Female Is called the root of Heaven and Earth.  
 Endless flow of inexhaustible energy.  
 
 ## 7
@@ -178,7 +178,7 @@ The old saying Crippled becomes whole Is not empty words. It becomes whole and r
 Spare words; nature's way. Violent winds do not blow all morning. Sudden rain cannot pour all day.  
 What causes these things? Heaven and Earth. If Heaven and Earth do not blow and pour for long, How much less should humans?  
 Therefore in following Tao: Those on the way become the way, Those who gain become the gain, Those who lose become the loss.  
-All within the Tao: The wayfarer, welcome upon the way, Those who gain, welcome within gain, Those who lose, welcome withon loss.  
+All within the Tao: The wayfarer, welcome upon the way, Those who gain, welcome within gain, Those who lose, welcome within loss.  
 Without trust in this, There is no trust at all.  
 
 ## 24
@@ -245,7 +245,7 @@ When many people are killed We feel sorrow and grief. A great victory Is a funer
 ## 32
 
 Tao endures without a name. Though simple and slight, No one under heaven can master it.  
-If kings and lords could posses it, All beings would become their guests.  
+If kings and lords could possess it, All beings would become their guests.  
 Heaven and earth together Would drip sweet dew Equally on all people Without regulation.  
 Begin to make order and names arise. Names lead to more names - And to knowing when to stop.  
 Tao's presence in this world Is like valley streams Flowing into rivers and seas.  
@@ -281,12 +281,12 @@ Fish cannot escape the deep pool. A country's sharpest weapons Cannot be display
 
 Tao endures without a name, Yet nothing is left undone.  
 If kings and lords could possess it, All beings would transform themselves. Transformed, they desire to create; I quiet them through nameless simplicity. Then there is no desire.  
-No desire is serenity, An the world settles of itself.  
+No desire is serenity, And the world settles of itself.  
 
 ## 38
 
 High Te? No Te! That's what Te is. Low Te doesn't lack Te; That's what Te is not.  
-Those highest in Te take no action And don't need to act. Tose lowest in Te take action And do need to act.  
+Those highest in Te take no action And don't need to act. Those lowest in Te take action And do need to act.  
 Those highest in benevolence take action But don't need to act. Those highest in righteousness take action And do need to act. Those highest in propriety take action And if people don't reciprocate Roll up their sleeves and throw them out.  
 Therefore Lose Tao And Te follows. Lose Te and benevolence follows. Lose benevolence And righteousness follows. Lose righteousness and propriety follows.  
 Propriety dilutes loyalty and sincerity: Confusion begins. Foreknowledge glorifies the Tao: Stupidity sets in.  
@@ -529,7 +529,7 @@ And so is without fault.
 ## 72
 
 When people are not in awe of power, Power becomes great.  
-Do not intrude into their homes, Do not make their lives weary. If you do not weary them, They will not becoem weary of you.  
+Do not intrude into their homes, Do not make their lives weary. If you do not weary them, They will not become weary of you.  
 Therefore the Sage Has self-knowledge without self-display, Self-love without personal pride, Rejects one, accepts the other.  
 
 ## 73

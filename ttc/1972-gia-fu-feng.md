@@ -390,7 +390,7 @@ Call it Tao.
 For lack of a better word, I call it great.  
 
 Being great, it flows  
-I flows far away.  
+It flows far away.  
 Having gone far, it returns.  
 
 Therefore, "Tao is great;  

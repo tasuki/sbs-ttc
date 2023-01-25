@@ -710,6 +710,21 @@ it is best to keep weapons out of sight.
 
 ## 37
 
+The Tao never acts with force,  
+yet there is nothing that it cannot do.  
+
+If rulers could follow the way of the Tao,  
+then all of creation would willingly follow their example.  
+If selfish desires were to arise after their transformation,  
+I would erase them with the power of the Uncarved Block.  
+
+By the power of the Uncarved Block,  
+future generations would loose their selfish desires.  
+By losing their selfish desires,  
+the world would naturally settle into peace.  
+
+## 38
+
 The highest good is not to seek to do good,  
 but to allow yourself to become it.  
 The ordinary person seeks to do good things,  
@@ -740,30 +755,6 @@ The master abides in the fruit and not in the husk.
 She dwells in the Tao,  
 and not with the things that hide it.  
 This is how she increases in wisdom.  
-
-## 38
-
-A man of the highest virtue does not keep to virtue and that is why he has virtue.  
-A man of the lowest virtue never strays from virtue and that is why he is without     virtue.  
-The former never acts yet leaves nothing undone.  
-The latter acts but there are things left undone.  
-A man of the highest benevolence acts, but from no ulterior motive.  
-A man of the highest rectitude acts, but from ulterior motive.  
-A man most conversant in the rites acts, but when no one responds rolls up his     sleeves and resorts to persuasion by force.  
-
-Hence     when the way was lost there was virtue;  
-When virtue was lost there was benevolence;  
-When benevolence was lost there was rectitude;  
-When rectitude was lost there were the rites.  
-
-The     rites are the wearing thin of loyalty and good faith  
-And the beginning of disorder;  
-Foreknowledge is the flowery embellishment of the way  
-And the beginning of folly.  
-
-Hence     the man of large mind abides in the thick not in the thin, in the fruit not     in the flower.  
-
-Therefore     he discards the one and takes the other.  
 
 ## 39
 

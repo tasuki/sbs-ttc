@@ -1358,7 +1358,7 @@ and destroying the enemy without engaging him.
 There is no greater disaster  
 than underestimating your enemy.  
 Underestimating your enemy  
-means loosing your greatest assets.  
+means losing your greatest assets.  
 When equal forces meet in battle,  
 victory will go to the one  
 that enters with the greatest sorrow.  

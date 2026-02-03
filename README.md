@@ -1,1 +1,1 @@
-Tao Te Ching data for [Side By Side](https://github.com/tasuk/side-by-side).
+Tao Te Ching data for [Side By Side](https://github.com/tasuki/side-by-side).
